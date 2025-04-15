@@ -2,4 +2,4 @@
 <!-- Your Name -->
 # It'sa me, Mariee :) 
 
-Currently Intern at Eisenführ Speiser
+Currently working at Kieback&Peter
